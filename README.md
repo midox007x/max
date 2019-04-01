@@ -1,3 +1,1 @@
-# duck29
-self-bot line
-Forked from Hello World
+# 𝐒𝐄𝐋𝐅𝐁𝐎𝐓 𝐁𝐘 𝐌𝐀𝐗
